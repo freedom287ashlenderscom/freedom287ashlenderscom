@@ -1,0 +1,6 @@
+freedomcashlenders.com
+
+https://www.freedomcashlenders247.com/
+
+Nationwide, Americans in all demographic groups use payday loans. The only requirements to obtain such credit are a checking account and a source of income. Typical borrowers earn about $30,000 per year, and most use the loans to cover recurring expenses such as rent, mortgage payments, groceries, and utilities.1
+Payday loans in Ohio are the country’s most expensive, with a typical annual percentage rate (APR) of 591 percent.2 Lenders charge higher prices in Ohio than in any neighboring state.
